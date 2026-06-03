@@ -1,1 +1,1 @@
-maybe script idk yet
+i will make script soon
